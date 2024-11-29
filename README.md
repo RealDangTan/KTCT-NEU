@@ -1,3 +1,13 @@
+1. Khái quát sự hình thành và phát triển (2 giai đoạn)
+2. - Thuật ngữ Kinh tế Chính trị - Moncretien (Pháp) – Đầu thế kỷ XVII - 1615
+   -  - Chủ nghĩa trọng thương: Đầu tiên – Vai trò của hoạt động thương mại – Starfod, Thomasmon, Antoine Moncretien
+   - Chủ nghĩa trọng nông: Sản xuất nông nghiệp
+   - - Kinh tế chính trị cổ điển Anh: Các phạm trù kinh tế trong nền kinh tế thị trường
+     - – Bản chất và nguồn gốc của của cải và sự giàu có của các quốc gia – Smith, Petty, Recardo
+     - – Thời kỳ đại công nghiệp cơ khí - Giữa thế kỷ 19: 2 trào lưu Kinh tế học và Kinh tế Chính trị Mác – Lênin (Bộ Tư nbản)
+     -  - Petty: C.Mác gọi là nhà kinh tế chính trị tư sản cổ điển
+        -  - Smith: Nhà kinh tế thời kỳ công trường thủ công 
+
 ![](attachment/c177b0d9f66c9e67413367aa0c5e3800.png)
 
 ![](attachment/d4dd6b9983675768b804aa1916ed764d.png)
